@@ -1,1 +1,0 @@
-# pogly-assets-suzy
